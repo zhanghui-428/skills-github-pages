@@ -1,0 +1,6 @@
+---
+title: "New-day-New-life"
+date: 2026-09-03
+---
+
+do something for myself in a new day.
